@@ -1,4 +1,4 @@
-# hello-world
+# CRYPTOCURRENCY MINING
 
 Hi Humans .
 Laluger here . I want to start cryptocurrency mining and looking for advise .
